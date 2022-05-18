@@ -1,4 +1,3 @@
-# kbj365.github.io
 
 # You can choose one of them to visit
 
